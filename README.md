@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @N4bula
+- 👀 I’m interested in: God's Plan for my life
+- 🌱 I’m currently learning: Coding Language C++
+- 💞️ I’m looking to collaborate on:
+- 📫 How to reach me: Discord - unityhub3d
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like to code and design games!
